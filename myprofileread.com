@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @lightfastfox
+- 👀 I’m interested in learing cording
+- 🌱 I’m currently learning in 9th
+- 💞️ I’m looking to collaborate on big game devlopers
